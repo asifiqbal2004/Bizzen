@@ -1,3 +1,3 @@
-# Bizzency-
+# Bizzen
 
-https://asifiqbal2004.github.io/Bizzency-/
+https://asifiqbal2004.github.io/Bizzen/
